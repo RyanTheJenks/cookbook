@@ -8,13 +8,13 @@ Read in: 3h
 ## Ingredients
 - 1 (.25 ounce) package active dry yeast
 - 1 cup warm water
-- 1/4 cup white sugar
+- ¼ cup white sugar
 - 3 tablespoons milk
 - 1 egg, beaten
 - 2 teaspoons salt
-- 4 1/2 cups bread flour
+- 4½ cups bread flour
 - 2 teaspoons minced garlic (optional)
-- 1/4 cup butter, melted
+- ¼ cup butter, melted
 
 ## Directions
 1. In a large bowl, dissolve yeast in warm water. Let stand about 10 minutes, until frothy. Stir in sugar, milk, egg, salt, and enough flour to make a soft dough. Knead for 6 to 8 minutes on a lightly floured surface, or until smooth. Place dough in a well oiled bowl, cover with a damp cloth, and set aside to rise. Let it rise 1 hour, until the dough has doubled in volume.
