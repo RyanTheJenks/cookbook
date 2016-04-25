@@ -5,15 +5,15 @@ Ingredients
 -----------
 * 2	   ripe bananas, approximately 1 cup mashed
 * 2	  large  eggs
-* 1⁄2	  cup  low-fat vanilla yogurt
-* 3⁄4	  cup  granulated or turbinado sugar
-* 1⁄4	  cup  coconut oil
-* 11⁄2	  tsp  vanilla extract
-* 11⁄2	  cups  all-purpose or whole wheat flour
+* ½	  cup  low-fat vanilla yogurt
+* ¾	  cup  granulated or turbinado sugar
+* ¼	  cup  coconut oil
+* 1½	  tsp  vanilla extract
+* 1½	  cups  all-purpose or whole wheat flour
 * 1	  tsp  baking soda
 * 1	  tsp  kosher salt
-* 1⁄2	  cup  walnuts, optional
-* 1⁄2	  cup  chocolate chips, optional
+* ½	  cup  walnuts, optional
+* ½	  cup  chocolate chips, optional
 
 Instructions
 -------------
