@@ -1,3 +1,5 @@
+Shorter version - http://cathymerenda.com/2013/12/22/walter-mitty-clementine-cake/
+
 ## Ingredients
 * 4 or 5 clementines (about 1 lb. total weight)
 * 6 eggs
